@@ -1,0 +1,2 @@
+# oam_sagamihara20201022yokoze01mavicair01
+2020年10月22日 古橋研究室横瀬合宿 空撮データ
